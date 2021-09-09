@@ -1,3 +1,3 @@
 # FID2021
-Fundamentals of interactive design Seminole State College  2021 
+Fundamentals of Interactive Design Seminole State College  2021 
 • JUDE WIECKOWSKI •
